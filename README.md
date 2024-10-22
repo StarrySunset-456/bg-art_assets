@@ -1,0 +1,1 @@
+# bg-art_assets
